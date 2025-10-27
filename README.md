@@ -1,5 +1,5 @@
 <H1>
-  Zarifboyev Sulaymon
+  Zarifboyev Sulaymon Vafoboy o'g'li
 </H1>
 <p>
   men 39-maktabda 7-sinfda o'qiman
